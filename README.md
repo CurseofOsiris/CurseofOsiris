@@ -26,8 +26,6 @@ moots int.
 
 <br><br>
 
-![Now Playing](https://lastfm-recently-played.vercel.app/api?user=mayy0804)
-
 <details>
 <summary><b>. . .</b></summary>
 
