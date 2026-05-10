@@ -1,12 +1,18 @@
 <div align="center">
 
-# : wip
+# : what im about to do has not been approved by the vatican.
 
-<img src="https://your-image-link-here.png" width="420" alt="image"/>
+<img src="https://cdn.imgchest.com/files/4c7540659a82.jpeg" width="490" alt="image"/>
+
+──── ୨୧ ────
+
+Null or V1, any prns . 4teen.
+
+faith, ultrakill, destiny 2, 
 
 <br><br>
 
-<img src= />
+![Badge](https://img.shields.io/badge/MORTIS-.-blue)
 
 <br>
 
