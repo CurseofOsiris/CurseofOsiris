@@ -2,11 +2,11 @@
 
 # : wip
 
-<img src="https://your-image-link-here.png" width="420" alt="Main character image"/>
+<img src="https://your-image-link-here.png" width="420" alt="image"/>
 
 <br><br>
 
-<img src="https://img.shields.io/badge/theories-173-f7d046?style=for-the-badge" />
+<img src= />
 
 <br>
 
@@ -15,7 +15,7 @@
 <br><br>
 
 <details>
-<summary><b>ℹ️ Info!</b></summary>
+<summary><b>wip</b></summary>
 
 <br>
 
