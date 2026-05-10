@@ -8,10 +8,13 @@
 
 Null or V1, any prns & unlabeled . 4teen.
 
+<img src="https://i.imgur.com/lArOr41.gif"/>
 
 faith, ultrakill, destiny 2, mortal kombat, etc.
 
 moots int.
+
+<img src="https://i.imgur.com/4CzsKFY.gif"/>
 
 <br><br>
 
@@ -24,7 +27,7 @@ moots int.
 <br><br>
 
 <details>
-<summary><b>wip</b></summary>
+<summary><b>. . .</b></summary>
 
 <br>
 
