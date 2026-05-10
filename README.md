@@ -1,16 +1,23 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**CurseofOsiris/CurseofOsiris** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# : wip
 
-Here are some ideas to get you started:
+<img src="https://your-image-link-here.png" width="420" alt="Main character image"/>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<br><br>
+
+<img src="https://img.shields.io/badge/theories-173-f7d046?style=for-the-badge" />
+
+<br>
+
+<img src="https://your-small-image-link-here.png" width="90" alt="Small icon"/>
+
+<br><br>
+
+<details>
+<summary><b>ℹ️ Info!</b></summary>
+
+<br>
+
+```txt
+0
