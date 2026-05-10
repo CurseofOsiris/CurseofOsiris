@@ -1,14 +1,17 @@
 <div align="center">
 
-# : what im about to do has not been approved by the vatican.
+# : what im about to do has not been approved by the Vatican.
 
-<img src="https://cdn.imgchest.com/files/4c7540659a82.jpeg" width="490" alt="image"/>
+<img src="https://cdn.imgchest.com/files/8bed6745ccec.jpeg" width="490" alt="image"/>
 
 ──── ୨୧ ────
 
-Null or V1, any prns . 4teen.
+Null or V1, any prns & unlabeled . 4teen.
 
-faith, ultrakill, destiny 2, 
+
+faith, ultrakill, destiny 2, mortal kombat, etc.
+
+moots int.
 
 <br><br>
 
@@ -16,7 +19,7 @@ faith, ultrakill, destiny 2,
 
 <br>
 
-<img src="https://your-small-image-link-here.png" width="90" alt="Small icon"/>
+<img src="https://cdn.imgchest.com/files/10b73b57816d.png" width="90" alt="Small icon"/>
 
 <br><br>
 
@@ -25,5 +28,3 @@ faith, ultrakill, destiny 2,
 
 <br>
 
-```txt
-0
