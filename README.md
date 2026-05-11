@@ -10,7 +10,15 @@ Null or V1, any prns & unlabeled . 4teen.
 
 <img src="https://i.imgur.com/lArOr41.gif"/>
 
-faith, ultrakill, destiny 2, mortal kombat, etc.
+interests .
+
+<img src="https://cdn.imgchest.com/files/7357980fd4de.png" width="120"/> 
+
+────
+
+<img src="https://cdn.imgchest.com/files/8ad94b043190.png" width="120"/>
+
+────
 
 moots int.
 
