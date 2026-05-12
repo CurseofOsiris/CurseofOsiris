@@ -42,7 +42,7 @@ moots int. ^_^
 <br><br>
 
 <details>
-<summary><b>. . .</b></summary>
+<summary><b>click me!</b></summary>
 
 b4 you int: just be aware i might be a little weird or freaky sometimes, but i dont intend to make anybody or my moots uncomfy and its usually all jokes, if ur uncomfy you can always tell me to stop! i wont get mad ^_^
 <br>
