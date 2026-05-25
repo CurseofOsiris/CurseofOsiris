@@ -6,7 +6,7 @@
 
 ──── ୨୧ ────
 
-Null or V1, any prns & unlabeled . 4teen.
+Null or V1, any prns & unlabeled . 4teen & yumeshipper .
 
 <img src="https://i.imgur.com/lArOr41.gif"/>
 
@@ -44,6 +44,8 @@ moots int. ^_^
 <br>
 
 <br><br> <img src="https://cdn.imgchest.com/files/1bc1ce8592e2.png" width="325"/>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qs3aqxf5vgj3zwthqqrhi7uh6q&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <details>
 <summary><b>click me!</b></summary>
