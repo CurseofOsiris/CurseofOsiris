@@ -63,6 +63,18 @@ b4 you int: just be aware i might be a little weird or freaky sometimes, but i d
 <br>
 
 
+<details>
+<summary><b>read this.</b></summary>
+
+hi! this is my dni list and iwc list.
+
+dni . tcoaal, dreamsmp (some fans are okay .) fans of any sort of problematic media .
+
+iwc . hazbin hotel/helluva, history fans (some of you hamiltion likers scare me.) msi, ozzy osbourne, and etc listeners .
+
+will add whenever i feel like it .
+<br>
+
 
 
 
