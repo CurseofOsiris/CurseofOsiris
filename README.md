@@ -1,16 +1,16 @@
 <div align="center">
+ 
+# <img src="https://pixelsafari.neocities.org/dividers/more/scrollbar.gif" width="700" />
 
-# : "i will give my life for yours, all for you to come back."
-
-<img src="https://dividers.crd.co/assets/images/gallery09/84ffd4dc.png?v=05d33f91" width="660" alt="image"/>
+<img src="https://pixelsafari.neocities.org/dividers/blood.gif" width="760" alt="image"/>
 
 
 
-<img src="https://cdn.imgchest.com/files/cc97c2d09d86.png" width="420" alt="image"/>
+<img src="https://cdn.imgchest.com/files/ebf6ed0b7882.jpeg" width="420" alt="image"/>
 
 ──── ୨୧ ────
 
-<img src="https://64.media.tumblr.com/5a6525bd7ba831485855c3920c9c66fb/e530cedacf80aa8e-03/s75x75_c1/4fb5e77b300b135f75658def4a7c7882b09062a3.gifv"/> Null or V1, any prns & unlabeled . 4teen & yumeshipper . <img src="https://64.media.tumblr.com/71b383b15065979af57a6f7a4874dd09/e530cedacf80aa8e-e6/s75x75_c1/32e963d12e70e571afd799fa3c6f0475642887ec.gifv"/>
+<img src="https://pixelsafari.neocities.org/favicon/horror/skull9.gif"/> Null or V1, any prns & unlabeled . 4teen & yumeshipper . <img src="https://pixelsafari.neocities.org/favicon/horror/weapon3.gif" width="25"/>
 
 
 <img src="https://i.imgur.com/lArOr41.gif"/>
@@ -44,17 +44,17 @@ moots int. ^_^
 
 <br><br>
 
-![Badge](https://img.shields.io/badge/dusek-kar-blue)
+![Badge](https://img.shields.io/badge/BLOODIS-FUEL-red)
 
 <br>
 
-<br><br> <img src="https://cdn.imgchest.com/files/8ea4af1796a8.jpeg" width="630"/>
+<br><br> <img src="https://cdn.imgchest.com/files/44205ec5e3b0.jpeg" width="580"/>
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qs3aqxf5vgj3zwthqqrhi7uh6q&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-<img src="https://dividers.crd.co/assets/images/gallery09/84ffd4dc.png?v=05d33f91" width="660"/>
+<img src="https://pixelsafari.neocities.org/dividers/bloodinverted.gif" width="760"/>
 
 <details>
 <summary><b>click me!</b></summary>
