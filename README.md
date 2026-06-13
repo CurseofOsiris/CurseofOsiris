@@ -60,11 +60,11 @@ moots int. ^_^
 <summary><b>click me!</b></summary>
 byi + dni.
 
-if you are uncomfortable with the fact i might be weird or sexual sometimes, please with iwc or let me know. i tend to make jokes about topics some people may be sensitive to. im also jokingly mean and might insult you in a nsrs way. i mean no harm and dont intend to make you upset but if i do hurt ur feelings, please tell me.
+if you are uncomfortable with the fact i might be weird or sexual sometimes, please iwc or let me know. i tend to make jokes about topics some people may be sensitive to or uncomfortable with. im also jokingly mean and might insult you in a nsrs way. i mean no harm and dont intend to make you upset but if i do hurt ur feelings, please tell me. i also have no filter, and mostly say whatever comes to mind. if you have ANYTHING specific you prefer me not talking about, please tell me so i know.
 
 basic dni. hazbin/helluva, dreamsmp, etc fans iwc.
 
-i dont mind you venting or dramaspilling to me, but please dont do it all the time, i have trouble comforting others and may come off the wrong way, and PLEASE dont get me personally involved with the drama ur in, severe or not. i do not want to be involved with something i have nothing to do with.
+i dont mind you venting to me, but please dont do it all the time, i have trouble comforting others and may come off the wrong way, i also dont mind if you dramaspill, but PLEASE dont get me personally involved with the drama ur in, severe or not. i do not want to be involved with something i have nothing to do with.
 <br>
 
 
