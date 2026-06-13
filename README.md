@@ -58,21 +58,13 @@ moots int. ^_^
 
 <details>
 <summary><b>click me!</b></summary>
+byi + dni.
 
-b4 you int: just be aware i might be a little weird or freaky sometimes, but i dont intend to make anybody or my moots uncomfy and its usually all jokes, if ur uncomfy you can always tell me to stop! i wont get mad ^_^
-<br>
+if you are uncomfortable with the fact i might be weird or sexual sometimes, please with iwc or let me know. i tend to make jokes about topics some people may be sensitive to. im also jokingly mean and might insult you in a nsrs way. i mean no harm and dont intend to make you upset but if i do hurt ur feelings, please tell me.
 
+basic dni. hazbin/helluva, dreamsmp, etc fans iwc.
 
-<details>
-<summary><b>read this.</b></summary>
-
-hi! this is my dni list and iwc list.
-
-dni . tcoaal, dreamsmp (some fans are okay .) fans of any sort of problematic media .
-
-iwc . hazbin hotel/helluva, history fans (some of you hamiltion likers scare me.) msi, ozzy osbourne, and etc listeners .
-
-will add whenever i feel like it .
+i dont mind you venting or dramaspilling to me, but please dont do it all the time, i have trouble comforting others and may come off the wrong way, and PLEASE dont get me personally involved with the drama ur in, severe or not. i do not want to be involved with something i have nothing to do with.
 <br>
 
 
