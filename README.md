@@ -1,6 +1,6 @@
 <div align="center">
  
-# <img src="https://pixelsafari.neocities.org/dividers/more/scrollbar.gif" width="700" />
+# <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=VT323&pause=1006&color=BB0000&center=true&width=435&lines=HOLY+ROLLER+SITS+IN+THE+GARDEN+WE+FLED;BLOOD+INTO+WINE+TAKE+MY+BODY+INSTEAD" alt="Typing SVG" width="530" /></a>
 
 <img src="https://pixelsafari.neocities.org/dividers/blood.gif" width="760" alt="image"/>
 
