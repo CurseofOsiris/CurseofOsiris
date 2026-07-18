@@ -6,7 +6,7 @@
 
 
 
-<img src="https://cdn.imgchest.com/files/df27a8d96d98.jpeg" width="490" alt="image"/>
+<img src="https://cdn.imgchest.com/files/989f6a81a210.png" width="490" alt="image"/>
 
 ──── ୨୧ ────
 
@@ -18,11 +18,11 @@ i share all my yumes ^_^
 
 <br><br>
 
-![Badge](https://img.shields.io/badge/FRAUD-.-red) ![Badge](https://img.shields.io/badge/TREACHERY-.-blue) ![Badge](https://img.shields.io/badge/WAR-.-black)
+![Badge](https://img.shields.io/badge/ANARCHY-.-red) ![Badge](https://img.shields.io/badge/BAIT&-SWITCH-black) ![Badge](https://img.shields.io/badge/READYTO-BLOW-red)
 
 <br>
 
-<br><br> <img src="https://cdn.imgchest.com/files/f9afa94289f1.jpeg" width="520"/>
+<br><br> <img src="https://i.pinimg.com/originals/4c/7e/13/4c7e13d84e62e075a2875ad1e07519dc.gif" width="510"/>
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qs3aqxf5vgj3zwthqqrhi7uh6q&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
