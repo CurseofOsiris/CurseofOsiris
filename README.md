@@ -1,6 +1,6 @@
 <div align="center">
  
-# <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=VT323&pause=1006&color=BB0000&center=true&width=435&lines=HOLY+ROLLER+SITS+IN+THE+GARDEN+WE+FLED;BLOOD+INTO+WINE+TAKE+MY+BODY+INSTEAD" alt="Typing SVG" width="530" /></a>
+# <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=BB0000&width=435&lines=Soul+mate%2C+enemy%2C+have+it+your+way;im+open-minded%2C+choose+ur+game." alt="Typing SVG" /></a>
 
 <img src="https://gifcity.carrd.co/assets/images/gallery39/c81a92f4.gif?v=3fc8f5cd" width="760" alt="image"/>
 
@@ -18,7 +18,7 @@ i share all my yumes ^_^
 
 <br><br>
 
-![Badge](https://img.shields.io/badge/ANARCHY-.-red) ![Badge](https://img.shields.io/badge/BAIT&-SWITCH-black) ![Badge](https://img.shields.io/badge/READYTO-BLOW-red)
+![Badge](https://img.shields.io/badge/ANARCHY-.-red) ![Badge](https://img.shields.io/badge/BAIT&-SWITCH-black) ![Badge](https://img.shields.io/badge/READYTO-BLOW.-red)
 
 <br>
 
